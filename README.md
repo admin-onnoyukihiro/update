@@ -10,4 +10,5 @@ admin@onnoyukihiro.site
 # cara Penggunaan
 Extract File lalu install Google Update.exe seperti biasa
 
+#jika target sudah pernah install google.exe maka tinggal buka Google-run.exe aja
 
